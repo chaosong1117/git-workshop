@@ -2,6 +2,7 @@
 
 ## **Dear 小賴老師**
 
+## 我的共筆連結:[《HackMD版本》](https://hackmd.io/Ifn-B6s_Rl6vd9t_ReVltA)
 
 ### 首先想先跟老師說，您的上課方式其實我非常喜歡 :+1: 
 
